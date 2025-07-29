@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm a preparatory high school student.
+I'm a 9th grade high school student.
 
 
 ## 🌐 Socials:
